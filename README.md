@@ -7,5 +7,4 @@
   entre em contato @martins.lima.julia@escola.pr.gov.br
 
 
-![](https://media1.tenor.com/m/Dux-QNjjjvQAAAAd/mc-katrina-katrina.gif)
-
+![](https://media1.tenor.com/m/6BSt2hvH45kAAAAd/dog-dance-brazil-dance.gif)
